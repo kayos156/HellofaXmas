@@ -1,7 +1,7 @@
-**On days like this massacists like us should just...**
-![B U R N  I N  H E L L .](https://www.demirramon.com/gen/undertale_text_box.gif?text=B%20U%20R%20N%20%20I%20N%20%20H%20E%20L%20L&box=undertale&boxcolor=white&character=custom&url=https%3A%2F%2Fi.imgur.com%2F93Vpdvn.png&charcolor=white&font=determination&asterisk=true&mode=regular&animate=true)
+**On days like this people like us should...**
+![-have a merry christmas! <3](https://www.demirramon.com/gen/undertale_text_box.gif?text=Have%20a%20merry%20christmas.&box=undertale&boxcolor=white&character=custom&url=https%3A%2F%2Fgithub.com%2Fkayos156%2FHellofaXmas%2Fraw%2Fgh-pages%2Floading-logo.png&charcolor=white&font=comicsans&asterisk=true&mode=regular&animate=true)
 
-**Have fun, and have a hell of a day.**
+**Have fun, and have a merry christmas!**
 
 ________________________________________________________________________________
 
