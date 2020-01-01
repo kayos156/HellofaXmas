@@ -2,7 +2,7 @@
 
 ![-have a happy new year! <3](https://www.demirramon.com/gen/undertale_text_box.gif?text=Have%20a%20hell%20of%20a%20new%20year.&box=undertale&boxcolor=white&character=custom&url=https%3A%2F%2Fgithub.com%2Fkayos156%2FHellofaXmas%2Fraw%2Fgh-pages%2Floading-logo.png&charcolor=white&font=comicsans&asterisk=true&mode=regular&animate=true)
 
-**Have fun, and have a hell of a new year!**
+**Have fun, and have a happy new year!**
 
 ________________________________________________________________________________
 
